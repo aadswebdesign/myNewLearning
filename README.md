@@ -2,4 +2,6 @@
 # A new begin.
 
 Let see how far I come this time?
-## it's going a little better.
+## After all.
+I made some progress yesterday and my goal for today is to learn some more.
+When time left setting up my project too?
